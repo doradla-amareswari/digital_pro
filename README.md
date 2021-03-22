@@ -18,7 +18,7 @@ Education
      Estimation Problem*
 
 2016-2017
-:   **ssc; sri chaitanya school(guntur)
+:   **ssc **; sri chaitanya school(guntur)
 
     *Minor: Awesomeology*
 
